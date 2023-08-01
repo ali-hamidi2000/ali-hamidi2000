@@ -3,11 +3,6 @@
   <a href="https://github.com/ali-hamidi2000"><img src="https://github.com/vimalverma558/vimalverma558/blob/v2/img/hello.gif" width="20%"></a>
 </h1>
 
-<p align="center">
-  <img src="https://user-images.githubusercontent.com/89135083/203324235-72529db4-d567-40fe-abdf-263e56c4689f.svg" alt="just for fun :D"></a>
-</p>
-<br>
-
 ## By the way here are some of my statistics 🚀
 
 ![](https://github-profile-summary-cards.vercel.app/api/cards/repos-per-language?username=ali-hamidi2000&theme=radical)![](https://github-profile-summary-cards.vercel.app/api/cards/most-commit-language?username=ali-hamidi2000&theme=radical)
