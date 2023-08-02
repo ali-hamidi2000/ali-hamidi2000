@@ -24,7 +24,7 @@
 ## Send your feedbacks 🚀
 
 - My [Linkedin](https://www.linkedin.com/in/ali-hamidi2000/) account.
-- My Telegram : [Personal](https://t.me/frxfx)
+- My [Telegram](https://t.me/frxfx) account
 - My [Whatsapp](https://wa.me/+989367030828) account.
 - My [Instagram](https://www.instagram.com/ali.mr100/) account.
 
