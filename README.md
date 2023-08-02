@@ -26,7 +26,7 @@
 - My [Linkedin](https://www.linkedin.com/in/ali-hamidi2000/) account.
 - My Telegram : [Personal](https://t.me/frxfx)
 - My [Whatsapp](https://wa.me/+989367030828) account.
-- My [Instagram](https://instagram.com/https://instagram.com/ali.mr100?utm_source=qr&igshid=MzNlNGNkZWQ4Mg%3D%3D) account.
+- My [Instagram](https://www.instagram.com/ali.mr100/) account.
 
 - My [Web]() site.
 
