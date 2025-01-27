@@ -61,14 +61,8 @@ Please send me an  [Email](ali.clm2000@gmail.com) to cooperate with me 📬.
 
 Qazvin, Islamic republic of Iran 🇮🇷
 
-* Artificial Intelligence Researcher 🧠
+* Python developer
 
-
-[Jobot](https://jobot.com) :
-
-San Francisco, United States America 🇺🇸
-
-* Software Engineer 🖼️
 
 <a href="https://www.youtube.com/watch?v=dQw4w9WgXcQ"><img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"></a>
 
